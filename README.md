@@ -25,3 +25,4 @@ I'm on a mission to **bridge the gap between AI, blockchain, and fintech**, maki
 📧 **Email:** gurusaran1996@outlook.com 
 
 ✨ *Building the future of decentralized finance and AI-powered fintech solutions!* 🚀  
+![](https://komarev.com/ghpvc/?username=gs47722&label=Profile+Views&color=blue&style=plastic)
